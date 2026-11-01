@@ -27,5 +27,8 @@ Cultivating 100% chemical-free, carbide-free organic Kesar, Alphonso, and Payari
 ## Maintainer & License
 - **Primary Maintainer**: Pratik Jadhav (@praks802)
 - **Orchard**: Panvel, Maharashtra
-- **Distribution Hub**: CBD Belapur, Navi Mumbai
-- **License**: Released under the MIT License.
+- **Distribution Hub**: CBD Belapur, Navi Mumbai - JADHAVS MANGOES
+- **Pickup Address**: 5/65, opposite Dmart Minimax, Artist Village, Sector 8, CBD Belapur, Navi Mumbai, Maharashtra 400614, Ind- **Contact**: +91 90227 21949 (Hours: Open 24 hours)
+- -Google Maps**: [https://share.google/dS8dDxRtAPNV2zs4K](https://share.google/dS8dDxRtAPNV2zs4K)
+- **License**: Released under the MIT License.- 
+- cense**: Released under the MIT License.
